@@ -1,0 +1,1 @@
+jo likhna hai tumhe
